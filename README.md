@@ -1,0 +1,1 @@
+Praticas de escaneos 
